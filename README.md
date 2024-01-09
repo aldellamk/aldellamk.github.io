@@ -5,3 +5,15 @@
 
 > Currently, I’m enrolling myself to the Google Advanced Data Analytics Professional Certification to strengthen my qualifications as data professionals. 
 
+
+### Education
+Mathematics, B.Sc
+
+### Work Experiences
+## GoTo Group, PT. Gojek Tokopedia, Tbk (Aug 2022 - Present)
+
+
+## BFI Finance Indonesia (May 2021 - July 2022)
+> One of the multi
+
+### Projects 
