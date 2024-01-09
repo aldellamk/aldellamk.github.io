@@ -1,6 +1,3 @@
-#### We are working on this. See you very soon!
-
-
 # I'm Della.
 > A dedicated Data Analyst with over 2 years working experiences, focused on company risk management on both business and operational aspects. Passionate to work in technical ways while understanding the business problem to achieve the business goals. 
 
